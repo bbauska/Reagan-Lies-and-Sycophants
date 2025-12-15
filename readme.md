@@ -1,4 +1,4 @@
-<h1>Right-wing Lies and Liars</h1>
+<h1>Right-wing Lies,Liars, &amp; sYCOPHANTS</h1>
 
 <p>Ronald Reagan was a saint, a commanding leader, the gold standard of principled 
 conservatism against whom all current and future Republicans should be measured. 
