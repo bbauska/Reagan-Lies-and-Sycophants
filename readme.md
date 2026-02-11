@@ -1,4 +1,10 @@
 <h1>Right-wing Lies, Liars, &amp; Sycophants</h1>
+<p>Not only deregulated Wall Stret for the bnefit of Republicans, but rewarded greed. 
+His policies in eight years rolled back social security, employment unions, and 
+wealth. Prior, the mniddle class was growing. After, all classes shrank except 
+for the top 3 Americans. That is being a total Kunt. Evil is the only word that 
+comes to mind. In doing so, he's got a cult following who think they will be one 
+of thoese 3. Well, fuck you evey Reagan-loving kunt in the World today, 2026, February 10th.</p>
 
 <p>Ronald Reagan was a saint, a commanding leader, the gold standard of principled 
 conservatism against whom all current and future Republicans should be measured. 
