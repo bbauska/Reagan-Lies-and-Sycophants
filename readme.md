@@ -1,9 +1,9 @@
 <h1>Right-wing Lies, Liars, &amp; Sycophants</h1>
-<p>Not only deregulated Wall Street for the bnefit of Republicans, but rewarded greed. 
-Moved the entire nation to the right 40 degrees of 100. Where now most liberals would 
-be a Republican today. And NO Republican would be a 1970's liberal. Where did humanity
-lose its berings?
-His policies in eight years rolled back social security, employment unions, and 
+<p>Not only deregulated Wall Street for the benefit of Republicans, but rewarded greed. 
+Moved the entire nation to the right 20 degrees of 100. Where now most liberals today 
+would considered a Republican in 1970. Where did humanity lose its bearings?</p>
+<p>Republicans found it was easier to destroy than to build.</p>
+<p>His policies in eight years rolled back social security, employment unions, and 
 wealth. Prior, the mniddle class was growing. After, all classes shrank except 
 for the top 3 Americans. That is being a total Kunt. Evil is the only word that 
 comes to mind. In doing so, he's got a cult following who think they will be one 
