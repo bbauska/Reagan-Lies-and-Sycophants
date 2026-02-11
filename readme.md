@@ -4,25 +4,27 @@ Moved the entire nation to the right 20 degrees of 100. Where now most liberals 
 would considered a Republican in 1970. Where did humanity lose its bearings?</p>
 <p>Republicans found it was easier to destroy than to build.</p>
 <p>His policies in eight years rolled back social security, employment unions, and 
-wealth. Prior, the mniddle class was growing. After, all classes shrank except 
+wealth. Prior, the middle class was growing. After, all classes shrank except 
 for the top 3 Americans. That is being a total Kunt. Evil is the only word that 
 comes to mind. In doing so, he's got a cult following who think they will be one 
-of thoese 3. Well, fuck you evey Reagan-loving kunt in the World today, 2026, February 10th.</p>
+of thoese 3. Well, fuck you evey Reagan-loving kunt in the World today, 2026, 
+February 10th.</p>
 
 <p>Ronald Reagan was a saint, a commanding leader, the gold standard of principled 
 conservatism against whom all current and future Republicans should be measured. 
 This is the new mantra coming out of the Republican race for the presidency as the 
 current crop of candidates scramble, quite understandably, to distance themselves 
-from the walking disaster that is George W. Bush.
+from the walking disaster that is George W. Bush.</p>
 
-The canonization of Ronald Reagan rests crucially on one thing Reagan himself did 
-well: forgetting the facts. It seems timely to exhume a few.
-In the Fox News-hosted ​“debate” among the Republican hopefuls, Ron Paul, Rudi 
+<p>The canonization of Ronald Reagan rests crucially on one thing Reagan himself did 
+well: forgetting the facts. It seems timely to exhume a few.</p>
+
+<p>In the Fox News-hosted ​“debate” among the Republican hopefuls, Ron Paul, Rudi 
 Giuliani and others were quick to wrap themselves in the Reagan mantle. When 
 Fred Thompson – actor turned politician – entered the race, he evoked huge sighs of 
 relief among Republicans, who see him as the one best able to recapture the Gipper’s 
 magic. Coincidentally, Reagan’s diaries, edited by Douglas Brinkley, have just been 
-published and also seek to cast him as ​“a true American leader”.
+published and also seek to cast him as ​“a true American leader”.</p>
 
 While much of the neocon agenda is in tatters right now, certainly one of its most 
 successful achievements has been the canonization of Ronald Reagan, which rests 
