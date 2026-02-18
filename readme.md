@@ -9,7 +9,7 @@ would considered a Republican in 1970. Where did humanity lose its bearings?</p>
 wealth. Prior, the middle class was growing. After, all classes shrank except 
 for the top 3 Americans. That is being a total Kunt. Evil is the only word that 
 comes to mind. In doing so, he's got a cult following who think they will be one 
-of thoese 3. Well, fuck you evey Reagan-loving kunt in the World today, 2026, 
+of thoese 3. Well, fuck you to evey Reagan-loving kunt in the World today, 2026, 
 February 10th.</p>
 
 <p>Ronald Reagan was a saint, a commanding leader, the gold standard of principled 
